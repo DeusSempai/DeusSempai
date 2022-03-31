@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DeusSempai(im not a sempai :D)
+- 👀 I’m interested in learning new things that can benefit me financely  
+- 🌱 I’m currently learning python and web dev
+- 💞️ I’m looking to collaborate on █▒▒▒▒▒▒▒ 
+- 📫 How to reach me --- you can use my email address: orosz.andras01@gmail.com
